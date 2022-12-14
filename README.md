@@ -25,5 +25,7 @@ Our choose: Our group choose to set up an online Website that about our class.
 # New year's dinner
 # ![1f426d3a0cc9efea268348527b5f8e7](https://user-images.githubusercontent.com/120447911/207279070-400a4020-b26e-4d88-808f-ff28512de187.jpg)
 # THE END
+# Timeline
+# ![a48b9cc0ba656a2d98f3a6cdf621a84](https://user-images.githubusercontent.com/120447911/207639391-222dcc6d-158b-49e1-8fcf-0593275ecd07.jpg)
 # ![thank1](https://user-images.githubusercontent.com/120447911/207279114-d9cb6e77-1a43-4446-ae41-189b182a4d00.jpg)
 # THANK FOR YOUR WATCH !!!
